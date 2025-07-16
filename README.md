@@ -1,0 +1,1 @@
+Data retail beberapa negara
